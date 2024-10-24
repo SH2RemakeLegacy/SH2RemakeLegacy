@@ -1,4 +1,4 @@
-![alt text](https://i.imgur.com/Ha4G98S.jpeg "SH2RemakeLegacy")
+![alt text](https://i.imgur.com/UVlmwmN.jpeg "SH2RemakeLegacy")
 
 
 
