@@ -2,7 +2,7 @@
 
 
 
-# 💫 About Me:
+# 💫Features (Wiki Page Soon):
 🎮 Classic Horror Revival: Fixed cameras bring back the unsettling atmosphere that made Silent Hill 2 a true horror masterpiece.<br>👁️ Controlled Perspective: With fixed angles, every shot is crafted to build tension and highlight key moments—no more missing the horror creeping behind you!<br>🌫️ Cinematic Feels: Each scene is framed like a horror movie, making every hallway, street, and room feel more cinematic and immersive.<br>😱 Amplified Fear: You won’t always see what’s lurking, but you’ll feel its presence. The fixed view limits your control, making you more vulnerable.<br>🧩 Puzzle Nostalgia: Navigate familiar environments with a fresh challenge—those tight camera angles make exploration more engaging.<br>💡 Enhanced Visual Storytelling: Fixed cameras enhance lighting, shadows, and sound design, making the visuals even more striking.<br>🧠 Strategic Movement: You’ll need to think differently about your movement—monsters feel closer, and fights are more intense when the camera is fixed!<br>🌪️ True to the Original: For veterans, it’s a nostalgia trip; for newcomers, it’s a chance to experience Silent Hill 2 the way it was meant to be played.<br>🎥 Artistic Control: Each camera angle is a deliberate choice that captures the eerie beauty and terror of Silent Hill.<br>⏳ Coming Soon: Get ready to relive the psychological horror with a fresh twist! Stay tuned for the official release of the fixed camera mod!
 
 
